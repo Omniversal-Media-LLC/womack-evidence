@@ -1,0 +1,6 @@
+# 01 MILITARY SERVICE – Summary
+
+## Files:
+- [01_MILITARY_SERVICE_doc_1.pdf](01_MILITARY_SERVICE_doc_1.pdf)
+- [01_MILITARY_SERVICE_doc_2.pdf](01_MILITARY_SERVICE_doc_2.pdf)
+- [01_MILITARY_SERVICE_doc_3.pdf](01_MILITARY_SERVICE_doc_3.pdf)
